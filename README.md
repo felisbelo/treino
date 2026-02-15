@@ -1,23 +1,4 @@
-Aqui está o **melhor plano possível de 8 semanas** para seu objetivo (**abdômen definido + perda de gordura**, sem suplementos), combinando progressão de treino + estratégia alimentar otimizada.
-
-Baseado em:
-
-* 16 anos, 69 kg, 175 cm
-* treino corporal 5x/semana
-* meta: secar mantendo músculo
-
----
-
-# Estratégia principal
-
-* **Calorias:** ~2.000–2.100 kcal
-* **Proteína:** ~120–140 g/dia
-* **Treino:** progressivo 5x/semana
-* **Cardio leve:** após treino (acelera definição)
-
----
-
-# TREINO PROGRESSIVO (8 semanas)
+# TREINO (8 semanas)
 
 ## Semanas 1–2 (fundação)
 
@@ -28,8 +9,6 @@ Baseado em:
 * Prancha: 3×30 s
 * Agachamento: 3×15
 * Caminhada rápida: 10 min
-
-Objetivo: adaptação muscular.
 
 ---
 
@@ -100,25 +79,3 @@ Objetivo: adaptação muscular.
 ## Ceia
 
 * fruta ou leite
-
----
-
-# REGRAS QUE ACELERAM MUITO O RESULTADO
-
-* dormir 7–9 h
-* evitar refrigerante e doces frequentes
-* água: 2–2,5 L/dia
-* manter treino mesmo quando cansado (consistência é o fator nº1)
-
----
-
-# Resultado realista seguindo corretamente
-
-* 2 semanas: mais força nas flexões
-* 4 semanas: redução da gordura abdominal
-* 6 semanas: abdômen começando a aparecer
-* 8 semanas: definição visível (principalmente parte superior)
-
----
-
-Se quiser, posso agora montar a **versão nível atleta iniciante** (o método usado em preparação militar leve) que faz muitos iniciantes passarem de **40 para 70–90 flexões em cerca de 6–8 semanas**, acelerando ainda mais a definição do abdômen.
